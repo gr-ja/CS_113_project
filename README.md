@@ -12,4 +12,4 @@ Theodor Har ([thar@uci.edu](thar@uci.edu))
 
 Mason Sawtell ([msawtell@uci.edu](msawtell@uci.edu))
 
-And Myself (Richard Qi) ([deyuq@uci.edu](deyuq@uci.edu))
+And Myself (Richard Qi) ([deyuq@uci.edu](deyuq@uci.edu)/[richardqi109@gmail.com](richardqi109@gmail.com))
